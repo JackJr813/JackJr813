@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on masterplans
 - 📫 How to reach me on my shell phone
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: F is for friends who do things together..U is for uranium bombs.. N is for No Survivors
 <!---
 JackJr813/JackJr813 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
